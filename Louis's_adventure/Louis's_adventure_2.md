@@ -28,25 +28,7 @@ Ducky said, "Yes, I will guide you through the forest and help you face the chal
 
 Thus, after leaving the lakeside, they headed towards the forest in the northeast. As Louis looked at the dark and ominous forest ahead, he felt an unsettling premonition.
 
-他開始計劃朝著人類的城市前進，因為他的師父讓他去找他的老朋友「梅蘭迪」問候並送他一個魔法箱。走下山後，路易來到了一個湖邊。為了測試自己的魔法技能，也為了尋求更多的幫助，他對一隻鴨子和一顆石頭施展了咒語。
-
-突然間，奇蹟發生了：鴨子開口說話，而那塊石頭也能自由活動。路易驚喜地看著這兩個新朋友，覺得自己的魔法學習沒有白費。
-
-鴨子首先自我介紹說：「我叫做 Ducky，很高興認識你。」
-
-路易:「我叫路易，我也很高興認識你」
-
-路易轉向那塊石頭，發現它也能自由活動，但還不知道自己的名字。石頭看向路易，說道：「我還不知道自己叫什麼名字，可以請你幫我取一個嗎？」
-
-路易微笑著回答：「當然可以。既然你是石頭變成的，你就叫 Rocky。」
-
-石頭高興地說：「謝謝你，Rocky 是個很好的名字！」
-
-接著，路易問 Ducky：「你知道怎麼到達人類的城鎮嗎？」
-
-Ducky 答道：「人類的城市再東方，你必須穿過森林、飛越天空、穿越海底，最後才能到達。」
-
-路易困惑地問：「為什麼要經過這麼多地方？」
+[IG](https://www.instagram.com/p/C-CgjpWSDJv/?img_index=1)
 
 Ducky 解釋道：「這些地方各自擁有不同的智慧和挑戰，只有經歷過它們，你才能真正理解這個世界的規則和生命的意義。」
 
