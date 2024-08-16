@@ -29,11 +29,3 @@ Ducky said, "Yes, I will guide you through the forest and help you face the chal
 Thus, after leaving the lakeside, they headed towards the forest in the northeast. As Louis looked at the dark and ominous forest ahead, he felt an unsettling premonition.
 
 [IG](https://www.instagram.com/p/C-CgjpWSDJv/?img_index=1)
-
-Ducky 解釋道：「這些地方各自擁有不同的智慧和挑戰，只有經歷過它們，你才能真正理解這個世界的規則和生命的意義。」
-
-路易明白了這是師父安排的一部分考驗，便接著問：「你可以帶我去嗎？」
-
-Ducky 說：「可以，我會帶你穿過森林，並幫助你在旅途中應對挑戰。」
-
-於是，他們離開湖邊後，看到東北邊有一座森林，開始朝著森林的方向前進，他看著這個森林非常黑暗，趕到了一個不祥的預感。
